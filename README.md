@@ -5,3 +5,4 @@ Window blinds consist of horizontal slats, one of which is on top of the other. 
 Vertical blinds are less prone than horizontal blinds to be damaged by high winds and to retain dirt. You will find fixed vertical blinds hanging on the doors of some houses and businesses that will generally leave the door open. Any movement of the blind will indicate a change in air flow or someone entering the door. The most common type is made of thick plastic.
 
 Cellular Blinds are also known as Honeycomb blinds. They derive their name from their shape that is made of individual cells that are stuck together. When you look from the side, it looks like a honeycomb. These blinds are very energy efficient. They will obtain their energy efficiency from the air pockets created by the cells. They are available in light filter fabrics, as well as in darkened fabrics.
+If you need more information visit:http://www.australianwindowcovering.com.au/honeycomb_blinds.html
